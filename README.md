@@ -1,5 +1,4 @@
-Made by Jhooly laal
-
+Made by Asfand Yar Malik & Ch Daniyal
 
 
 
